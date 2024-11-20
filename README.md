@@ -7,6 +7,10 @@ Cross S1 (2024)
 
     magnet:?xt=urn:btih:20109be489447c32e3cbc112cfe4d5a329f0d913&dn=www.1TamilBlasters.fyi%20-%20Kishkindha%20Kaandam%20%282024%29%20%5BTamil%20-%201080p%20HQ%20HDRip%20-%20x264%20-%20%5BDDP%205.1%20%28192Kbps%29%20%2B%20AAC%5D%20-%202.4GB%20-%20ESub%5D.mkv&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.demonii.com%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.0x7c0.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker-udp.gbitt.info%3A80%2Fannounce&tr=udp%3A%2F%2Frun.publictracker.xyz%3A6969%2Fannounce&tr=udp%3A%2F%2Fretracker01-msk-virt.corbina.net%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.io%3A6969%2Fannounce&tr=udp%3A%2F%2Fopen.dstud.io%3A6969%2Fannounce&tr=udp%3A%2F%2Fnew-line.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fmoonburrow.club%3A6969%2Fannounce
 
+#scam 1992
+
+       magnet:?xt=urn:btih:d0d127fbcc43de9380a4ae8a32c80cc3cfa83ec3&dn=www.1TamilMV.live%20-%20SCAM%201992%20(2020)%20S01%20EP%20(01-10)%20TRUE%20WEB-DL%20-%201080p%20-%20%5bTam%20%2b%20Tel%20%2b%20Mal%20%2b%20Hin%5d%20-%207.7GB%20-%20ESub&tr=udp%3a%2f%2fp4p.arenabg.com%3a1337%2fannounce&tr=http%3a%2f%2fpow7.com%3a80%2fannounce&tr=udp%3a%2f%2ftracker.tiny-vps.com%3a6969%2fannounce&tr=http%3a%2f%2ftracker2.itzmx.com%3a6961%2fannounce&tr=udp%3a%2f%2f151.80.120.114%3a2710%2fannounce&tr=udp%3a%2f%2f9.rarbg.com%3a2790%2fannounce&tr=udp%3a%2f%2f9.rarbg.to%3a2740%2fannounce&tr=udp%3a%2f%2fopen.stealth.si%3a80%2fannounce&tr=udp%3a%2f%2ftracker.leechers-paradise.org%3a6969%2fannounce&tr=udp%3a%2f%2ftracker.opentrackr.org%3a1337%2fannounce&tr=http%3a%2f%2ft.nyaatracker.com%3a80%2fannounce
+
 
 
 
